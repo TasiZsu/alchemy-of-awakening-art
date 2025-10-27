@@ -1,7 +1,7 @@
 # Alchemy of Awakening Art
 
 ## About the Project
-*Alchemy of Awakening Art* is a personal and evolving exploration of art, spirituality, and consciousness. Through my creations, I aim to bridge the worlds of classical fantasy, mystical symbolism, and cosmic awareness, offering viewers a transformative visual experience.
+My goal is a personal and evolving exploration of art, spirituality, and consciousness. Through my creations, I aim to bridge the worlds of classical fantasy, mystical symbolism, and cosmic awareness, offering viewers a transformative visual experience.
 
 ## My Artistic Vision
 I focus on painterly, fantasy-inspired works that intertwine elements of alchemy, sacred geometry, ancient mythologies, and spiritual teachings. My art often draws from both historical and contemporary inspirations, seeking to illuminate the connections between science, nature, and consciousness. Each piece is designed to evoke reflection, curiosity, and a deeper connection with the universe.
